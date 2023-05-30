@@ -1,4 +1,12 @@
-### Hi there 👋
+
+Dridri'
+
+Deftones :)
+Beatles🪐
+
+
+https://instagram.com/dri.raiski?igshid=MzNlNGNkZWQ4Mg== 
+
 
 <!--
 **r4dioatividade/r4dioatividade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
